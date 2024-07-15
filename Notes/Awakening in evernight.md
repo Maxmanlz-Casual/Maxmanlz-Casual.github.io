@@ -1,0 +1,10 @@
+ - Eldon(the elf that was in the cage when we all fell asleep) has told us that we seem to have fallen into a crevice that seemed to have disappeared
+	 - He called this crevice an unstable one
+	 - We seem to be in an alternate version of neverwinter
+	 - we need a stable crevice to be able to go back to neverwinter
+	 - He suggests we go to a possible marketplace 
+ - We spot a large goat headed creature roaming the graveyard
+	 - We skedaddle before it can see us and we make our way to the market
+	 - The market is bustling with swathes of undead creatures
+		 - Vampire, zombie, etc
+	 - 
